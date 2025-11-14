@@ -58,4 +58,6 @@ Michelle/
 
 ---
 
+**Author**: Michelle D. Guanlao (michelleguanlao7@gmail.com)
+
 Created with ❤️ for Michelle D. Guanlao
